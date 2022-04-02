@@ -1,2 +1,2 @@
-# Technical-Assessment-Infinty
+# Technical-Assessment-Infinity
  
